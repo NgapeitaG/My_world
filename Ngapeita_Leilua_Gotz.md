@@ -1,4 +1,4 @@
-ko wai koe? Who are you?
+KO WAI KOE? 
 My full name is Ngapeita Matehaere Leilua - Gotz.
 I'm 22 years old, born 1996. I grew up in Auckland all my life but my mother and father are from a small town called Taumarunui.
 My tribes are Ngati Maniapoto, Ngapuhi, Ngati Haua, Ngati Tuwharetoa and my hapu are Ngati Hekeawai.
